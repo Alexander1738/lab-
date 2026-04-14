@@ -1,0 +1,1 @@
+lad arrays (3)
